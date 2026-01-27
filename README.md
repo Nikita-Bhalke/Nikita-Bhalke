@@ -17,7 +17,7 @@ Email Me 👉 ✉️ **nikitabhalke7777@gmail.com** For Collaboration/Project or
 - 💬 **Ask me about:** Java, Web Development, DSA, Learning Resources
 - 📫 **How to reach me:** **nikitabhalke7777@gmail.com**
 - 😄 **Pronouns:** She/Her
-- ⚡ **Fun fact:** I love technology, and technology loves me back 💻✨
+
  
 
 ## 🌐 Socials:
